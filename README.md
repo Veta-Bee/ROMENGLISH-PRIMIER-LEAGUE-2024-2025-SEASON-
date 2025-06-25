@@ -1,6 +1,8 @@
 # ROMENGLISH-PRIMIER-LEAGUE-2024-2025-SEASON-
 The 2024/2025 Premier League season wasn't just played, it was meticulously won – a campaign where Liverpool's statistical dominance painted a clear picture of their hard-earned glory.
 
+![image](https://github.com/user-attachments/assets/eaee0d6c-8947-465b-ab0f-be334b6044bd)
+
 
 The 2024/2025 English Premier League season has concluded, and what a campaign it was! Beyond the narratives, the numbers tell a compelling story of strategy, performance, and historic shifts. We've compiled the key metrics to give you a comprehensive look at the season's technical highlights.
 
